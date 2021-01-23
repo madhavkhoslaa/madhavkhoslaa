@@ -1,7 +1,7 @@
 # Madhav Khosla
 ---
 
-Hey, I'm a final year undegrad student at BVCOE. I'm open for internship/fulltime positions.
+Hey, I'm a final year undegrad student. I'm open for internship/fulltime positions.
 
 ## Interested in:
 
